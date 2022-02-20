@@ -1,4 +1,4 @@
--Hi, I’m @SpudBoi69420 or you can just call me Jett
+-Hi, I’m @GWYRDVERTENGEEN or you can just call me Jett
 
 -I’m interested in learning or doing all types of projects with code such as trying to create my own programming language (Don't ask how it's going)
 
